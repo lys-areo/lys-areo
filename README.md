@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @lys-areo
+- 👀 I’m interested in website design
+- 🌱 I’m currently learning game desing
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me github
